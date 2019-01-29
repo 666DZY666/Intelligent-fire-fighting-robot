@@ -5,4 +5,4 @@ To optimize the design of the common fire fighting machines on the market, enhan
 
 Now let's go!
 
-Project video:https://pan.baidu.com/s/1FBVjXlYk7pCsP0hUFXsaNg
+Project video:https://www.bilibili.com/video/av40175966
